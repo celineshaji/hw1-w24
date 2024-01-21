@@ -1,0 +1,5 @@
+![wisconsin_dells](https://github.com/celineshaji/hw1-w24/assets/156857166/59fd3128-f4cd-4823-b7b7-f26a93a043c6)
+![rushmore](https://github.com/celineshaji/hw1-w24/assets/156857166/3f112776-8131-4e3c-bae4-0d00bdd6da03)
+![jewel_cave](https://github.com/celineshaji/hw1-w24/assets/156857166/e7fc70be-7f08-4c9e-b416-5643b7ed68ea)
+![falling](https://github.com/celineshaji/hw1-w24/assets/156857166/a7964cea-2441-4bae-9afb-099285f752e8)
+![badlands](https://github.com/celineshaji/hw1-w24/assets/156857166/1226d6cd-a615-4170-91ca-c428b82de0c6)
